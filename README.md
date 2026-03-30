@@ -1,5 +1,5 @@
 
-![PPy](https://github.com/user-attachments/assets/218088df-10a3-4853-bec1-00a6afb36360)
+![ATEd](https://github.com/user-attachments/assets/dcd5797a-e0ed-4c83-b20e-c7d03b40761d)
 
 
 <h1 align="center">Hi 👋, I'm Hiruna</h1>
