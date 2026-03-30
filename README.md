@@ -1,5 +1,6 @@
 
-![5YPk](https://github.com/user-attachments/assets/410092cf-fee6-4713-97a0-d3ac7839218b)
+![PPy](https://github.com/user-attachments/assets/218088df-10a3-4853-bec1-00a6afb36360)
+
 
 <h1 align="center">Hi 👋, I'm Hiruna</h1>
 <h3 align="center">A passionate Computer Science student from Sri Lanka</h3>
