@@ -1,5 +1,5 @@
 
-![ATEd](https://github.com/user-attachments/assets/dcd5797a-e0ed-4c83-b20e-c7d03b40761d)
+![U3xO](https://github.com/user-attachments/assets/485b24e6-f36f-405f-9135-1277a67af193)
 
 
 <h1 align="center">Hi 👋, I'm Hiruna</h1>
