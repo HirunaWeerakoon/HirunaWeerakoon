@@ -1,3 +1,6 @@
+
+![5YPk](https://github.com/user-attachments/assets/410092cf-fee6-4713-97a0-d3ac7839218b)
+
 <h1 align="center">Hi 👋, I'm Hiruna</h1>
 <h3 align="center">A passionate Computer Science student from Sri Lanka</h3>
 
